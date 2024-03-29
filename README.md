@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @casharks
-- 👀 I’m interested in ... Scat packs
+- 👀 I’m interested in ... My Girlfriend 
 - 🌱 I’m currently learning ... hwo to be an EMT
 - 💞️ I’m looking to collaborate on ... nothing 
 - 📫 How to reach me ... My Links
